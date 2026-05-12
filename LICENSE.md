@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Shotcut for PC | Shotcut for Windows extension with premium Shotcut for PC | Shotcut for Windows Extension | export-presets + batch-processing. Featuring
 
 
 
